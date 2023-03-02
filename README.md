@@ -6,10 +6,9 @@ I'm a 17yo student who interested in web & app development. Currently, I'm in 11
 
 Fyi
 -
-1. I love singing. 🎙️
+1. I like to sing a song. 🎶
 2. I like to play piano 🎹 (CrossBell pianist).
 3. I like anime. 💕
-4. I like to sing a song. 🎶
 5. Song genre (Western, KPop & Indonesia Music). 🇮🇩
 
 Currently using:
