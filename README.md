@@ -1,6 +1,6 @@
 👋 Hello! My name is Jenxieny Alviana Christin Olivia, known by people as zhenni or njenn.
 
-I'm a 17yo student who interested in web & app development. Currently, I'm in 11th grade of high school. 
+I'm a student who interested in web & app development. Currently, I'm in 11th grade of high school. 
 
 🐕 I really love animals, especially dogs & cats.
 
